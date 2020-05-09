@@ -20,4 +20,6 @@ There are two datasets:
 
 
 ----------------------------------------------------------------------------------------------------
-If someone needs any kind of help. You can reach me out on shashankshanu1993@gmail.com or on LinkedIn: www.linkedin.com/in/shashankshanu-425783117.
+If someone needs any kind of help. You can reach me out on
+- Gmail: shashankshanu1993@gmail.com 
+- LinkedIn: www.linkedin.com/in/shashankshanu-425783117.
